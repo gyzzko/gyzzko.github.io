@@ -1,1 +1,0 @@
-# gyzzko.github.io
